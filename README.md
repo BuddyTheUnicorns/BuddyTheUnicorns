@@ -1,3 +1,5 @@
+<div align="center">
+
 ## The table in the word is clickable.
  
 <table align="center"><th>
