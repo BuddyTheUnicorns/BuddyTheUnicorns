@@ -73,7 +73,7 @@
 <br>The Mario Bros
 <br>Five Nights at Freddy 
 <br>Animal Mechanicals
-<br>The Lion King.
+<br>The Lion King
 <br>The Beauty and the Beast
  </details>
 </th></table>
