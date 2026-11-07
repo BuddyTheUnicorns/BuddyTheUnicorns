@@ -24,13 +24,14 @@
 
 <table align="center"><th>
 <details><summary> <br>About Cautions</summary>
- <br>Might murder you with my axe if copying or covering my pony/unicorn skin.
+ <br>Might bite you if copying or covering my pony/unicorn skin.
  <br>Please respect my boundaries and do not ship me, aka Buddy and Bingo.
  <br>Toxic People.
  <br>Mean People.
  <br>Weird People.
  <br>Copycats.
  <br>Skin Stealer.
+ <br>DO NOT HARASS ME OVER WATCHING HAZBIN HOTEL AND HELLUVA BOSS. I DO NOT WATCH THEM ALL THE TIME. (I WATCHED IT ON YT SHORTS.)
 </details>
 </th></table>
 
