@@ -15,7 +15,7 @@
 <table align="center"><th>
 <details><summary> <br>About PT</summary>
  <br>I allow everypony to cuddle, pile, snuggle, and hug.
- <br>I enjoy crowd ponies and allow every pony to cuddle, pile, snuggle, and hug.
+ <br>I sometimes enjoy crowd ponies whenever I'm afk.
  <br>Always active on pt and might be busy on irl. I love to hang out with my friends on game (NOT IRL)
  <br>Please do not cover or copy my "BUDDY" pony/unicorn.
  <br>Freely to W2I. But please don't spam whisper. I will completly ignored nor replying message to you.
